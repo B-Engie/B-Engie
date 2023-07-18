@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me:
 -- Discord: TheEpicGuru#0502
--- Twitter: @TheEpicGuuruu
+-- Twitter: @AverageMoth23
 
 <!---
 B-Engie/B-Engie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
